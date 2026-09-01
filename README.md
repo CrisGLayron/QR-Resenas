@@ -1,1 +1,1 @@
-# QR-Rese-as
+# QR-Reseñas
